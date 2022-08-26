@@ -1,0 +1,2 @@
+# emirai
+Ne yapacağım 
